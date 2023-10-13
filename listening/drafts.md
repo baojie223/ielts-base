@@ -348,3 +348,105 @@ flour sugar
 disappointing cream
 rare chemical
 danger
+
+overtime busy not required valuable advise
+casual restriction high heels trainers preferable
+no packed lunch
+case study
+ignored
+outline
+structure frame framework
+term
+administrators
+officials
+mayor
+inventor
+discoverer
+beggar
+anonymous
+trends or regularities
+slides
+graphs
+tables
+charts
+send emails to those people
+machine
+permission
+relocation
+ordinary people
+founder
+temporarily closed
+tools
+bend bend
+wanted to
+
+interior
+exterior
+over budget
+within budget
+postpone
+put off
+be about to
+separate
+
+label
+candle
+article
+vehcile
+cable
+vertical
+camel
+australian
+convenient
+feburary
+vehicle vehicle
+february
+austr
+vehicle vehicle vheicle australia australia australia february february february february february february australia
+australia
+vehicle vehicle february february
+vehicle
+vehicle
+
+apron
+eclipse
+escription inscription pharmacy pharmacy mechanism mechanism
+parmacy
+machanism
+procedures
+
+fluids
+parliament
+priotiy
+equatio
+starvation
+
+poverty
+
+extension
+parliament
+administrator translator
+bank statement
+
+attack
+mammals
+brief
+edges
+delicate
+memories
+learning
+breath
+sleeping problems
+rat
+genetic
+_performance
+competition
+hurry up
+feet
+bones
+hard ret
+red blood
+muscle
+shark
+
+heart rate heart rate
